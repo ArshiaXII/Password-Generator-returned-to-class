@@ -1,2 +1,0 @@
-KEKW
-U MAD?
